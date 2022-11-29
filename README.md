@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MoGuangYu 🇨🇳
-- 🐧 319887158
+- 🐧 [点击添加我为好友](https://qm.qq.com/cgi-bin/qm/qr?k=o_ASPnA9BFPEtiqRaSNKRhLMUuu4rqdP&noverify=0&personal_qrcode_source=4)
 - 📫 starryyuboy@gmail.com
 
 <!---
